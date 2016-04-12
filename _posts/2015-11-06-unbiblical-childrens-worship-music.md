@@ -40,5 +40,6 @@ True worship is not about how us, how we feel, what we love, or what we want to 
 > Give thanks to him; bless his name!
 > For the Lord is good;
 > his steadfast love endures forever,
-> and his faithfulness to all generations.<br/>
+> and his faithfulness to all generations.
+> 
 > **Psalm 100**
