@@ -30,27 +30,15 @@ Last 2 lines:
 True worship is not about how us, how we feel, what we love, or what we want to do, but about continually offering up a sacrifice of praise to God, that is, the fruit of lips that acknowledge his name (Heb 13:15).
 
 > **Psalm 100**
-    
 > Make a joyful noise to the Lord, all the earth!
-        
 > Serve the Lord with gladness!
-        
 > Come into his presence with singing!
-    
 > Know that the Lord, he is God!
-        
 > It is he who made us, and we are his;
-        
 > we are his people, and the sheep of his pasture.
-    
 > Enter his gates with thanksgiving,
-        
 > and his courts with praise!
-        
 > Give thanks to him; bless his name!
-    
 > For the Lord is good;
-        
 > his steadfast love endures forever,
-        
 > and his faithfulness to all generations.
