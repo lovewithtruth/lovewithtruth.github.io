@@ -27,7 +27,7 @@ Last 2 lines:
   * **Everyday God nothing, no nothing will ever separate me from Your love today God**: God is love! Rom 5:6-11, Rom 8:35-39
   * **nothing, no nothing will ever stop me from living for You**: Again, sadly, this won&#8217;t be true for all singers (Matt 15:7-9, 1 Cor 15:1-2), so having this statement without qualifying who the &#8220;I&#8221; is to whom it applies is dangerous.
 
-True worship is not about how us, how we feel, what we love, or what we want to do, but about continually offering up a sacrifice of praise to God, that is, the fruit of lips that acknowledge his name (Heb 13:15).
+True worship is not about us, how we feel, what we love, or what we want to do, but about continually offering up a sacrifice of praise to God, that is, the fruit of lips that acknowledge his name (Heb 13:15).
 
 > Make a joyful noise to the Lord, all the earth!
 > Serve the Lord with gladness!
