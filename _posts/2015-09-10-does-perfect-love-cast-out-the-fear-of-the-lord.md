@@ -9,7 +9,7 @@ permalink: /does-perfect-love-cast-out-the-fear-of-the-lord/
 categories:
   - Uncategorized
 ---
-> There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and whoever fears has not been perfected in love.
+> There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and whoever fears has not been perfected in love.<br/>
 > &#8212; 1 John 4:18 
 
 ## Fear God
@@ -25,7 +25,7 @@ If you don&#8217;t understand the fear of the lord let scripture teach you:
 > Keep your tongue from evil
 > and your lips from speaking deceit.
 > Turn away from evil and do good;
-> seek peace and pursue it.
+> seek peace and pursue it.<br/>
 > Psalm 34:11-14
 
 > My son, if you receive my words
@@ -37,14 +37,14 @@ If you don&#8217;t understand the fear of the lord let scripture teach you:
 > if you seek it like silver
 > and search for it as for hidden treasures,
 > **then you will understand the fear of the Lord**
-> and find the knowledge of God.
+> and find the knowledge of God.<br/>
 > Proverbs 2:1-5 (emphasis mine) 
 
 ## Perfect Love casts out fear
 
 Let&#8217;s first look at 1 John 4:18 in the context of the surrounding verses:
 
-> By this we know that we abide in him and he in us, because he has given us of his Spirit. And we have seen and testify that the Father has sent his Son to be the Savior of the world. Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. **By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he first loved us.**
+> By this we know that we abide in him and he in us, because he has given us of his Spirit. And we have seen and testify that the Father has sent his Son to be the Savior of the world. Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. **By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he first loved us.**<br/>
 > 1 John 4:13-19 (verses 17+ bolded) 
 
 ## Contradiction?
@@ -55,5 +55,5 @@ Before we are born again as obedient believers in Jesus we stand condemned befor
 
 The fear talked about in this verse &#8220;has to do with punishment&#8221;. When we are perfected in love, we have no reason to fear punishment because we have been justified by the blood of Jesus and we&#8217;ll be saved by Him from the wrath of God (Romans 5:8-9). We are given &#8220;the assurance of things hoped for&#8221; (Hebrews 11:1-2) and our fear shifts from man, punishment, etc. to a reverent fear of our awesome God (Proverbs 29:25, Galatians 1:10).
 
-> For while we were still weak, at the right time Christ died for the ungodly. For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. Since, therefore, we have now been justified by his blood, much more shall we be saved by him from the wrath of God. For if while we were enemies we were reconciled to God by the death of his Son, much more, now that we are reconciled, shall we be saved by his life. More than that, we also rejoice in God through our Lord Jesus Christ, through whom we have now received reconciliation.
+> For while we were still weak, at the right time Christ died for the ungodly. For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. Since, therefore, we have now been justified by his blood, much more shall we be saved by him from the wrath of God. For if while we were enemies we were reconciled to God by the death of his Son, much more, now that we are reconciled, shall we be saved by his life. More than that, we also rejoice in God through our Lord Jesus Christ, through whom we have now received reconciliation.<br/>
 > Romans 5:6-11
