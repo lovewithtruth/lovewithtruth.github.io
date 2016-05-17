@@ -4,7 +4,6 @@ title: Confess your sins to one another
 date: 2015-07-12T17:46:32+00:00
 author: Daniel Hug
 layout: post
-guid: http://lovewithtruth.com/?p=19
 permalink: /confess-your-sins-to-one-another/
 categories:
   - Uncategorized

@@ -4,7 +4,6 @@ title: An Agile Creator
 date: 2015-04-15T13:02:06+00:00
 author: Daniel Hug
 layout: post
-guid: http://lovewithtruth.com/?p=7
 permalink: /agile-creator/
 categories:
   - Uncategorized

@@ -4,7 +4,6 @@ title: Does perfect love cast out the fear of the Lord?
 date: 2015-09-10T07:58:27+00:00
 author: Daniel Hug
 layout: post
-guid: http://lovewithtruth.com/?p=29
 permalink: /does-perfect-love-cast-out-the-fear-of-the-lord/
 categories:
   - Uncategorized

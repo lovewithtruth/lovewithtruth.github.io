@@ -4,7 +4,6 @@ title: '(Un)Biblical Children&#8217;s Worship Music'
 date: 2015-11-06T15:10:46+00:00
 author: Daniel Hug
 layout: post
-guid: http://lovewithtruth.com/?p=45
 permalink: /unbiblical-childrens-worship-music/
 categories:
   - Uncategorized
