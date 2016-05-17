@@ -85,6 +85,15 @@ exclude:
   - README.md
   - CNAME
 
+defaults:
+  -
+    scope:
+      path: "" # an empty string here means all files in the project
+      type: "posts" # previously `post` in Jekyll 2.2.
+    values:
+      layout: "post"
+      author: "Daniel Hug"
+
 # prose for easier markdown authoring
 prose:
   rooturl: '_posts'
