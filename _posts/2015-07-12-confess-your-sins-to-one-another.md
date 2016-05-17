@@ -1,12 +1,5 @@
 ---
-id: 19
 title: Confess your sins to one another
-date: 2015-07-12T17:46:32+00:00
-author: Daniel Hug
-layout: post
-permalink: /confess-your-sins-to-one-another/
-categories:
-  - Uncategorized
 ---
 
 > Therefore, confess your sins to one another and pray for one another, that you may be healed. The prayer of a righteous person has great power as it is working.

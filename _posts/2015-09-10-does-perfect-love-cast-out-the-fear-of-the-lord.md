@@ -1,12 +1,5 @@
 ---
-id: 29
 title: Does perfect love cast out the fear of the Lord?
-date: 2015-09-10T07:58:27+00:00
-author: Daniel Hug
-layout: post
-permalink: /does-perfect-love-cast-out-the-fear-of-the-lord/
-categories:
-  - Uncategorized
 ---
 > There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and whoever fears has not been perfected in love.
 > 

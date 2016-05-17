@@ -1,12 +1,5 @@
 ---
-id: 7
 title: An Agile Creator
-date: 2015-04-15T13:02:06+00:00
-author: Daniel Hug
-layout: post
-permalink: /agile-creator/
-categories:
-  - Uncategorized
 ---
 > In the beginning God created the heavens and the earth.
 > 

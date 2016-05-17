@@ -1,12 +1,5 @@
 ---
-id: 45
 title: '(Un)Biblical Children&#8217;s Worship Music'
-date: 2015-11-06T15:10:46+00:00
-author: Daniel Hug
-layout: post
-permalink: /unbiblical-childrens-worship-music/
-categories:
-  - Uncategorized
 ---
 ## [Hillsong Kids &#8211; Follow You](https://www.youtube.com/watch?v=WrcZ7Qq3ccQ)
 
