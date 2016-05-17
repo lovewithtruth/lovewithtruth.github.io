@@ -4,12 +4,8 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Love with Truth is a Gospel evangelism ministry based in Western Washington. This blog is run by Daniel Hug.
 
-### More Information
+### Contact Daniel
 
-A place to include any other types of information that you'd like to include about yourself.
-
-### Contact me
-
-[email@domain.com](mailto:email@domain.com)
+[danielthehug@gmail.com](mailto:danielthehug@gmail.com)
