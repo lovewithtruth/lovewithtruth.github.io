@@ -101,6 +101,7 @@ Romans 2:6-8
 He will render to each one according to his works: to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury.
 
 ### Jesus
+
 #### "the Word" (God's Son) came to Earth as a man: fulfilling prophecy. His name is Jesus.
 Jeremiah 23:5-6  
 “Behold, the days are coming, declares the Lord, when I will raise up for David a righteous Branch, and he shall reign as king and deal wisely, and shall execute justice and righteousness in the land. In his days Judah will be saved, and Israel will dwell securely. And this is the name by which he will be called: ‘The Lᴏʀᴅ is our righteousness.’
