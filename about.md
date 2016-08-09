@@ -8,4 +8,4 @@ Love with Truth is a Gospel evangelism ministry based in Western Washington. The
 
 ### Contact Daniel
 
-[danielthehug@gmail.com](mailto:danielthehug@gmail.com)
+[daniel@lovewithtruth.com](mailto:daniel@lovewithtruth.com)
