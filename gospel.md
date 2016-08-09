@@ -151,9 +151,9 @@ Now Jesus did many other signs in the presence of the disciples, which are not w
 -->
 
 #### Jesus magnified the law: fulfilling prophecy
-Psalm 18:3  
-I call upon the Lord, who is worthy to be praised,
-and I am saved from my enemies.
+Isaiah 42:21  
+The Lord was pleased, for his righteousness' sake,
+to magnify his law and make it glorious.
 
 Matthew 5:17-48  
 “Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish them but to fulfill them. For truly, I say to you, until heaven and earth pass away, not an iota, not a dot, will pass from the Law until all is accomplished. Therefore whoever relaxes one of the least of these commandments and teaches others to do the same will be called least in the kingdom of heaven, but whoever does them and teaches them will be called great in the kingdom of heaven. For I tell you, unless your righteousness exceeds that of the scribes and Pharisees, you will never enter the kingdom of heaven.
