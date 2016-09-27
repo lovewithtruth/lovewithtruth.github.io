@@ -23,7 +23,7 @@ In the beginning was the Word, and the Word was with God, and the Word was God. 
 
 #### God's name is Yahweh (the LORD). We are His.
 Psalm 24:1-2  
-The earth is the Lord’s and the fullness thereof,
+The earth is the LORD’s and the fullness thereof,
 the world and those who dwell therein,
 for he has founded it upon the seas
 and established it upon the rivers.
@@ -32,7 +32,7 @@ and established it upon the rivers.
 
 #### God is righteous; so are His rules. They are true, and endure forever.
 Psalm 119:137  
-Righteous are you, O Lord,
+Righteous are you, O LORD,
     and right are your rules.
 
 Psalm 119:160  
@@ -41,23 +41,23 @@ The sum of your word is truth,
 
 #### They should not be added to or taken from.
 Deuteronomy 4:2  
-You shall not add to the word that I command you, nor take from it, that you may keep the commandments of the Lord your God that I command you.
+You shall not add to the word that I command you, nor take from it, that you may keep the commandments of the LORD your God that I command you.
 
 #### God's 10 commandments
 Exodus 20:1-17  
 And God spoke all these words, saying,
 
-“I am the Lord your God, who brought you out of the land of Egypt, out of the house of slavery.
+“I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery.
 
 “**You shall have no other gods before me.**
 
-“**You shall not make for yourself a carved image, or any likeness of anything** that is in heaven above, or that is in the earth beneath, or that is in the water under the earth. **You shall not bow down to them or serve them**, for I the Lord your God am a jealous God, visiting the iniquity of the fathers on the children to the third and the fourth generation of those who hate me, but showing steadfast love to thousands of those who love me and keep my commandments.
+“**You shall not make for yourself a carved image, or any likeness of anything** that is in heaven above, or that is in the earth beneath, or that is in the water under the earth. **You shall not bow down to them or serve them**, for I the LORD your God am a jealous God, visiting the iniquity of the fathers on the children to the third and the fourth generation of those who hate me, but showing steadfast love to thousands of those who love me and keep my commandments.
 
-“**You shall not take the name of the Lord your God in vain**, for the Lord will not hold him guiltless who takes his name in vain.
+“**You shall not take the name of the LORD your God in vain**, for the LORD will not hold him guiltless who takes his name in vain.
 
-“**Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the Lord your God. On it you shall not do any work**, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the Lord made heaven and earth, the sea, and all that is in them, and rested on the seventh day. Therefore the Lord blessed the Sabbath day and made it holy.
+“**Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work**, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested on the seventh day. Therefore the LORD blessed the Sabbath day and made it holy.
 
-“**Honor your father and your mother**, that your days may be long in the land that the Lord your God is giving you.
+“**Honor your father and your mother**, that your days may be long in the land that the LORD your God is giving you.
 
 “**You shall not murder.**
 
@@ -85,7 +85,7 @@ So whoever knows the right thing to do and fails to do it, for him it is sin.
 This is the message we have heard from him and proclaim to you, that God is light, and in him is no darkness at all. If we say we have fellowship with him while we walk in darkness, we lie and do not practice the truth.
 
 Isaiah 59:1-2  
-Behold, the Lord’s hand is not shortened, that it cannot save,
+Behold, the LORD’s hand is not shortened, that it cannot save,
 or his ear dull, that it cannot hear;
 but your iniquities have made a separation
 between you and your God,
@@ -104,7 +104,7 @@ He will render to each one according to his works: to those who by patience in w
 
 #### "the Word" (God's Son) came to Earth as a man: fulfilling prophecy. His name is Jesus.
 Jeremiah 23:5-6  
-“Behold, the days are coming, declares the Lord, when I will raise up for David a righteous Branch, and he shall reign as king and deal wisely, and shall execute justice and righteousness in the land. In his days Judah will be saved, and Israel will dwell securely. And this is the name by which he will be called: ‘The Lᴏʀᴅ is our righteousness.’
+“Behold, the days are coming, declares the LORD, when I will raise up for David a righteous Branch, and he shall reign as king and deal wisely, and shall execute justice and righteousness in the land. In his days Judah will be saved, and Israel will dwell securely. And this is the name by which he will be called: ‘The Lᴏʀᴅ is our righteousness.’
 
 John 1:14-17  
 And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth. (John bore witness about him, and cried out, “This was he of whom I said, ‘He who comes after me ranks before me, because he was before me.’”) For from his fullness we have all received, grace upon grace. For the law was given through Moses; grace and truth came through Jesus Christ.
@@ -152,7 +152,7 @@ Now Jesus did many other signs in the presence of the disciples, which are not w
 
 #### Jesus magnified the law: fulfilling prophecy
 Isaiah 42:21  
-The Lord was pleased, for his righteousness' sake,
+The LORD was pleased, for his righteousness' sake,
 to magnify his law and make it glorious.
 
 Matthew 5:17-48  
@@ -217,7 +217,7 @@ upon him was the chastisement that brought us peace,
     and with his wounds we are healed.
 All we like sheep have gone astray;
     we have turned—every one—to his own way;
-and the Lord has laid on him
+and the LORD has laid on him
     the iniquity of us all.
 
 John 19:31-37  
@@ -257,7 +257,7 @@ he has prepared for him his deadly weapons,
     making his arrows fiery shafts.
 
 Jeremiah 17:10  
-“I the Lord search the heart
+“I the LORD search the heart
 and test the mind,
 to give every man according to his ways,
 according to the fruit of his deeds.”
