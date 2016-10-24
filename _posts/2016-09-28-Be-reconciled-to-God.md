@@ -10,7 +10,8 @@ The scriptures say, "Test yourselves. Or do you not realize this about yourselve
 
 Jesus commands you to deny yourself, take up your cross, and follow Him. He said, "whoever would save his life will lose it, but whoever loses his life for my sake will find it" (Matt 16:24-26), "and anyone who does not take up his cross and follow Me is not worthy of Me" (Matt 10:38). There are false teachers who secretly bring in destructive heresies and pervert the grace of our God into sensuality (2 Peter 2:1-2, Jude 1:4). They will not tell you to repent, claiming that would be preaching a false gospel (salvation by works of the law: Gal 3:10). However, consider this statement that the apostle Paul made by the Spirit of God:
 
-> I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me. I do not nullify the grace of God, for if righteousness were through the law, then Christ died for no purpose.  
+> I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me. I do not nullify the grace of God, for if righteousness were through the law, then Christ died for no purpose.
+> 
 > Galatians 2:20-21
 
 Notice, he upholds the fact that those who belong to Christ Jesus have crucified the flesh with its passions and desires (Gal 5:24), while making clear that he does not nullify the grace of God (Gal 2:21). You see, because of our sinful nature, the law can justify no one. But, by sending his own Son, who took our sin upon himself, God has both condemned sin in the flesh, and He fulfills the righteous requirement of the law in us, who walk in the Spirit rather than the flesh (Romans 8:3-4).
