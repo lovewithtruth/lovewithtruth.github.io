@@ -1,7 +1,7 @@
 ---
 title: Be reconciled to God!
 ---
-Friends,
+Friends,  
 I plead with you to be reconciled to God (2 Cor 5:20). His Word says to "Examine yourselves to see whether you are in the faith" (2 Cor 13:5). Whoever says “I know him” but does not keep his commandments is a liar (1 John 2:4). We cannot have fellowship with Jesus while walking in darkness (1 John 1:6). Even though you call Jesus "Lord", and pray, "in Jesus' name", you may be one of the many to whom He will say, "I never knew you; depart from me, you workers of lawlessness" (Mat 7:21-23).
 
 If we are truly His, our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin. One who has died with Him has been set free from sin (Rom 6:6-7). Jesus made it clear that everyone who practices sin is a slave to sin, not a child of God, but that "if the Son sets you free, you will be free indeed" (John 8:34-36).
