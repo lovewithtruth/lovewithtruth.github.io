@@ -14,7 +14,7 @@ The passage of scripture in question here is from Colossians 2:
 
 This does not say that the Law was nailed to the cross, but only the sin debt of those who receive Jesus as Messiah. That debt is the price that must be paid for sin including the curses for disobedience found in Deuteronomy 27 and 28. Jesus and his followers always upheld the law as righteous (Matt 5:17-20, Romans 3:31, 7:12). This is true even though it effects a curse upon all of humanity because of their falling short. 
 
-> The <span class="small-caps">Lord</span> has looked down from heaven upon the sons of men  
+> The LORD has looked down from heaven upon the sons of men  
 > To see if there are any who understand,  
 > Who seek after God.  
 > They have all turned aside, together they have become corrupt;  
