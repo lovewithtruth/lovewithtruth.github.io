@@ -29,7 +29,7 @@ The Law, clearly then, will justify no one. But, from the beginning it has been 
 
 The seed is Jesus. He is the fulfillment of this and all other prophecies about the messiah in the Hebrew Scriptures.
 
-Don't be deceived by those Jews who reject their messiah:
+Don't be deceived by those who reject the promised messiah:
 
 > He is the <span class="small-caps">stone which was rejected</span> by you, <span class="small-caps">the builders</span>, _but_ <span class="small-caps">which became the chief corner</span> _stone_. And there is salvation in no one else; for there is no other name under heaven that has been given among men by which we must be saved.”
 > 
