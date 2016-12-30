@@ -124,6 +124,10 @@ img {
   color: $gray;
 }
 
+.small-caps {
+  font-variant: small-caps;
+}
+
 // Specify the color of the selection
 ::-moz-selection {
   color: $black;
