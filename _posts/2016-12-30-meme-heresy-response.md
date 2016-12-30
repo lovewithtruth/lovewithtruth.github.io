@@ -22,7 +22,7 @@ This does not say that the Law was nailed to the cross, but only the sin debt of
 > 
 > Psalm 14:2-3
 
-The Law, clearly then, will justify no one. But, from the beginning it has been that "the righteous will live by his faith" (Habakkuk 2:4). Abraham, for example, "believed in the Lord," and the Lord "reckoned it to him as righteousness" (Genesis 15:6). Those who would like to receive that same righteousness must follow in the footsteps of Abraham's faith, just as the Lord said to him, "in you all the families of the earth will be blessed” (Gen 12:3). This promise ("in you all the families of the earth will be blessed”), God later clarified saying, "In your seed all the nations of the earth shall be blessed, because you have obeyed My voice” (Gen 22:18). Two things can be learned about God's blessing of righteousness from this clarification:
+The Law, clearly then, will justify no one. But, from the beginning it has been that "the righteous will live by his faith" (Habakkuk 2:4). Abraham, for example, "believed in the LORD," and the LORD "reckoned it to him as righteousness" (Genesis 15:6). Those who would like to receive that same righteousness must follow in the footsteps of Abraham's faith, just as the Lord said to him, "in you all the families of the earth will be blessed” (Gen 12:3). This promise ("in you all the families of the earth will be blessed”), God later clarified saying, "In your seed all the nations of the earth shall be blessed, because you have obeyed My voice” (Gen 22:18). Two things can be learned about God's blessing of righteousness from this clarification:
 
 1. It only comes to those who have obedience accompanying their faith.
 2. It would come through a descendant ("seed") of Abraham.
