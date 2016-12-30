@@ -110,6 +110,17 @@ strong, b {
   font-weight: bold;
 }
 
+sup, sub {
+  font-size: smaller;
+  vertical-align: baseline;
+  position: relative;
+  top: -0.4em;
+}
+
+sub {
+  top: 0.4em;
+}
+
 img {
   max-width: 100%;
 }
