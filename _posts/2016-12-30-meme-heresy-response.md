@@ -1,7 +1,8 @@
 ---
-title: In response to a meme promoting heresy
+title: Was the Law nailed to the cross?
 ---
 
+This article is in response to this meme promoting heresy:  
 ![Meme spouting Bible heresy](http://i.imgur.com/W28ctbZ.jpg)
 
 > If the Law was nailed to the cross and sin is the violation of the Law then there is no more sin so why do I need a saviour?
@@ -29,7 +30,7 @@ The Law, clearly then, will justify no one. But, from the beginning it has been 
 
 The seed is Jesus. He is the fulfillment of this and all other prophecies about the messiah in the Hebrew Scriptures.
 
-Don't be deceived by those who reject the promised messiah:
+Don't be deceived by those who reject God's Son and our only Redeemer:
 
 > He is the <span class="small-caps">stone which was rejected</span> by you, <span class="small-caps">the builders</span>, _but_ <span class="small-caps">which became the chief corner</span> _stone_. And there is salvation in no one else; for there is no other name under heaven that has been given among men by which we must be saved.”
 > 
