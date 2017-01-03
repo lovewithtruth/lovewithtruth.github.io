@@ -2,8 +2,7 @@
 title: Was the Law nailed to the cross?
 ---
 
-This article is in response to this meme promoting heresy:  
-![Meme spouting Bible heresy](http://i.imgur.com/W28ctbZ.jpg)
+This article is in response to this question I received promoting heresy:
 
 > If the Law was nailed to the cross and sin is the violation of the Law then there is no more sin so why do I need a saviour?
 
