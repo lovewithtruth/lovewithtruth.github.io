@@ -6,6 +6,7 @@ permalink: /does-world-like-jesus/
 
 #### The world hates the true Jesus
 John 7:7
+
 > The world cannot hate you, but it hates me because I testify about it that its works are evil.
 
 **In, but not of, the world:**
@@ -13,10 +14,12 @@ John 17:15-16, 1 Cor 5:9-10, James 1:29
 
 #### Sinners will not stand in the assembly of the righteous
 Psalm 1:5
+
 > Therefore the wicked will not stand in the judgment,
 Nor sinners in the assembly of the righteous.
 
 1 Cor 14:23-25
+
 > Therefore if the whole church assembles together and all speak in tongues, and ungifted men or unbelievers enter, will they not say that you are mad? 24 But if all prophesy, and an unbeliever or an ungifted man enters, **he is convicted by all, he is called to account by all**; 25 the secrets of his heart are disclosed; and so he will fall on his face and worship God, declaring that God is certainly among you.
 
 Convicted is also translated "show him his fault" in Mt 18:15
