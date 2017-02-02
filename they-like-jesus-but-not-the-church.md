@@ -1,6 +1,6 @@
 ---
 layout: page
-title: \"They like Jesus but not the Church\"
+title: "They like Jesus but not the Church"
 permalink: /does-world-like-jesus/
 ---
 
