@@ -1,7 +1,7 @@
 ---
 layout: page
 title: \"They like Jesus but not the Church\"
-permalink: /about/
+permalink: /does-world-like-jesus/
 ---
 
 #### The world hates the true Jesus
