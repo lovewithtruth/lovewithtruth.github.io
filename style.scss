@@ -121,6 +121,14 @@ sub {
   top: 0.4em;
 }
 
+blockquote {
+	margin: 1.8em .8em;
+	border-left: 2px solid $gray;
+	padding: 0.1em 1em;
+	color: $gray;
+	font-size: 22px;
+}
+
 img {
   max-width: 100%;
 }
@@ -277,14 +285,6 @@ nav {
 }
 
 .post {
-  blockquote {
-    margin: 1.8em .8em;
-    border-left: 2px solid $gray;
-    padding: 0.1em 1em;
-    color: $gray;
-    font-size: 22px;
-  }
-
   .comments {
     margin-top: 10px;
   }
