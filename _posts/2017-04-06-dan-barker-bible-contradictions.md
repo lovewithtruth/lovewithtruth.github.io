@@ -2,16 +2,14 @@
 title: Honest analysis of supposed bible contradictions reveals God's perfect character
 ---
 
-From chapter 23 of *Losing Faith In Faith: From Preacher To Atheist* by Dan Barker
-
----
+From chapter 23 of *Losing Faith In Faith: From Preacher To Atheist* by Dan Barker:
 
 > PAUL SAID, "God is not the author of confusion," (I Corinthians 14:33), yet never has a book produced more confusion than the bible!
 
 Listen to what Paul wrote earlier in that letter to the Corinthians:
 
 > Now we have received, not the spirit of the world, but the Spirit who is from God, that we might know the things that have been freely given to us by God.
-
+> 
 > These things we also speak, not in words which man’s wisdom teaches but which the Holy Spirit teaches, comparing spiritual things with spiritual. But the natural man does not receive the things of the Spirit of God, for they are foolishness to him; nor can he know them, because they are spiritually discerned.
 
 We can see then, that God, in his wisdom, has chosen to reveal his qualities to those who receive His Spirit in such a way that is foolishness to those who would rather set their minds on material things. The confusion presented is that of Mr. Barker and others who give glory to God's creation but not God. They do not even give thanks to their creator. Paul wrote in [his letter to all of Rome](https://www.biblegateway.com/passage/?search=Romans+1-2&version=NKJV), about such men, "who suppress the truth in unrighteousness." He says, "Professing to be wise, they became fools." Why should God grant knowledge of Himself to any such ingrate? Paul says rather that, "as they did not like to retain God in their knowledge, God gave them over to a debased mind." So we see that God does not force obedience on those who harden their hearts against Him. He instead longs that each of us would humble *ourselves* and be saved. Towards this end, God has revealed Himself in His son Jesus to make clear the only way to be saved. 
@@ -25,11 +23,11 @@ Mr. Barker goes on:
 Yes, and even Satan himself uses the inspired Word of God to "prove" his false doctrines. The following is from Matthew's account of the Lord Jesus:
 
 > Then the devil took Him up into the holy city, set Him on the pinnacle of the temple, and said to Him, “If You are the Son of God, throw Yourself down. For it is written:
-
+> 
 > <span class="oblique">‘He shall give His angels charge over you,’</span>
-
+> 
 > and,
-
+> 
 > <span class="oblique">‘In</span> _their_ <span class="oblique">hands they shall bear you up,</span>  
 > <span class="oblique">Lest you dash your foot against a stone.’</span>”
 
