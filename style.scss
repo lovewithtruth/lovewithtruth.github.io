@@ -307,6 +307,27 @@ footer {
   text-align: center;
 }
 
+/* added 6/13/2017 for sticky footer */
+html {
+    position: relative;
+    min-height: 100%;
+}
+body {
+    margin: 0 0 140px; /* bottom = footer height */
+}
+
+.wrapper-masthead, #main, .wrapper-footer {
+    min-width: 310px;
+}
+
+.wrapper-footer {
+    position: absolute;
+    left: 0;
+    bottom: 0;
+    height: 67px;
+    width: 100%;
+}
+
 // Settled on moving the import of syntax highlighting to the bottom of the CSS
 // ... Otherwise it really bloats up the top of the CSS file and makes it difficult to find the start
 @import "highlights";
