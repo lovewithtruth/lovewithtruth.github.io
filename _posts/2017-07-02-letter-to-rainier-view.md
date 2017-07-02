@@ -2,12 +2,12 @@
 title: Letter to Rainier View church
 ---
 
-The following is a letter that I wrote to the elders at the church I grew up in with much prayer to bring correction about issues of worldliness which are detrimental to holiness. These problems prevent the production of biblically-good fruit in each person under their teaching. By turning the grace of God into licentiousness these men, deny Jesus Christ by their works: nullifying any profession of faith (Titus 1:16). None of the problems were acknowledged in the reponse from Rainier View nor did they show me any place I am in error. I also sent this letter to the current pastor and now I believe it is time to warn the congregation, calling each one to biblical repentence and complete surrendur to God. His thoughts are higher than our thoughts. His ways are higher than are ways.
+The following is a letter that I wrote to the elders at the church I grew up in with much prayer to bring correction about issues of worldliness which are detrimental to holiness. These problems prevent the production of biblically-good fruit in each person under their teaching. By turning the grace of God into licentiousness these men, deny Jesus Christ by their works: nullifying any profession of faith (Titus 1:16). None of the problems were acknowledged in the response from Rainier View nor did they show me any place I am in error. I also sent this letter to the current pastor and now I believe it is time to warn the congregation, calling each one to biblical repentance and complete surrender to God. His thoughts are higher than our thoughts. His ways are higher than are ways.
 
 ---
 
-Dear elders of Rainier View,
-Chris, Leon, Pat, Brock, Andy, Mark,
+Dear elders of Rainier View,  
+Chris, Leon, Pat, Brock, Andy, Mark,  
 This is Daniel Hug. I don't know any of you well, but some of you may know I stopped attending Rainier View about 2 years ago after having attended regularly my whole life with my family. I made this decision after the Lord convicted me of how I was not a true Christian, despite my baptism, as I was walking in sin. At this time I came to repentance, grew in discernment, and began to see many instances where Rainier View was not standing on biblical truth but compromising to be more appealing to the unconverted.
 
 I hope that you will hear me out. I am writing to each of you because of my love and concern for each person that attends Rainier View. I have concern for those who are converted that they would not be hardened by the deceitfulness of sin as they attend a fellowship that does not call them to holy living (Hebrews 3:12-14). And I have concern for those who are NOT converted that they would not be deceived thinking that they are saved just because they attend church, were baptized, and call Jesus "Lord" (Matt 7:21-23). Below I have itemized some of my concerns and provided scripture references alongside each. These are intended to shed light on each issue. I pray that you will prayerfully read each one in order to ultimately be led by the Holy Spirit of God rather than by my words.
@@ -18,10 +18,10 @@ I hope that you will hear me out. I am writing to each of you because of my love
 
 1. **God's Word is truth. It should direct our lives.**
 
-	Every word of God is tested;
-He is a shield to those who take refuge in Him.
-Do not add to His words
-Or He will reprove you, and you will be proved a liar.
+	Every word of God is tested;  
+He is a shield to those who take refuge in Him.  
+Do not add to His words  
+Or He will reprove you, and you will be proved a liar.  
 	Proverbs 30:5-6 (cf. 2 Timothy 3:16-17)
 
 1. **The Word of God will judge each one of us.**
