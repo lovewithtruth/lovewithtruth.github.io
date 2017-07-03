@@ -88,7 +88,7 @@ John 8:34-36 (cf. Romans 6:3-7, Romans 8:12-14)
 
 
 ### Bad fruit
-- As people are not taught to dress modestly, immodesty is practiced without correction or discipline: 1 Timothy 2:11-15
+- As people are not taught to dress modestly, immodesty is practiced without correction or discipline: 1 Timothy 2:9-15
 
 - Rainier View has replaced the call to "go into all the world and preach the gospel" with "live the invitational life." One place this is seen is with the RVCC-hosted event NiteLite. In order to invite children from local schools, RVCC leaders have given them signed promise that they would not share the gospel in any way. In doing this RVCC has forsaken one of their primary duties. They should instead take the stand that Peter and the other apostles took when commanded to cease teaching in Jesus' name: "We must obey God rather than men." See Acts 4:18-20, 5:27-29, 1 Corinthians 9:23, and Philippians 1:27.
 
