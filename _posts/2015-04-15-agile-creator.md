@@ -7,7 +7,7 @@ title: An Agile Creator
 
 ## "Couldn't God have used a Big Bang?"
 
-In verse 2, he makes it clear that the earth started with water, not rocks that collided after an explosion and were to hot for water.
+In verse 2, he makes it clear that the earth started with water, not rocks that collided after an explosion which would have been too hot for water.
 
 > The earth was without form and void, and darkness was over the face of the deep. And the Spirit of God was hovering over the face of the waters.
 > 
