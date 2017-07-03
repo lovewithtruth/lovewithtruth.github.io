@@ -2,7 +2,7 @@
 title: Letter to Rainier View church
 ---
 
-The following is a letter that I wrote to the elders at the church I grew up in with much prayer to bring correction about issues of worldliness which are detrimental to holiness. These problems prevent the production of biblically-good fruit in each person under their teaching. By turning the grace of God into licentiousness these men, deny Jesus Christ by their works: nullifying any profession of faith (Titus 1:16). None of the problems were acknowledged in the response from Rainier View nor did they show me any place I am in error. I also sent this letter to the current pastor and now I believe it is time to warn the congregation, calling each one to biblical repentance and complete surrender to God. His thoughts are higher than our thoughts. His ways are higher than are ways.
+The following is a letter that I wrote to the elders at the church I grew up in with much prayer to bring correction about issues of worldliness which are detrimental to holiness. These problems prevent the production of biblically-good fruit in each person under their teaching. By turning the grace of God into licentiousness these men, deny Jesus Christ by their works: nullifying any profession of faith (Titus 1:16). None of the problems were acknowledged in the response from Rainier View nor did they show me any place I am in error. I also sent this letter to the current pastor and now I believe it is time to warn the congregation, calling each one to biblical repentance and complete surrender to God. His thoughts are higher than our thoughts. His ways are higher than our ways.
 
 ---
 
