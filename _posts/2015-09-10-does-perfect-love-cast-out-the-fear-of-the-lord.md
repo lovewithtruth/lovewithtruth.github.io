@@ -7,9 +7,9 @@ title: Does perfect love cast out the fear of the Lord?
 
 ## Fear God
 
-The fear of the lord is the beginning of knowledge (Proverbs 1:7) and wisdom (Psalm 111:10). We are repeatedly commanded to fear God in the old (Ecclesiastes 12:13, Proverbs 3:7) and new (Matthew 10:28, 1 Peter 2:17) testaments of the Bible. We can't both love Jesus and disregard his word (John 14:23-24).
+The fear of the Lord is the beginning of knowledge (Proverbs 1:7) and wisdom (Psalm 111:10). We are repeatedly commanded to fear God in the old (Ecclesiastes 12:13, Proverbs 3:7) and new (Matthew 10:28, 1 Peter 2:17) testaments of the Bible. We can't both love Jesus and disregard his word (John 14:23-24).
 
-If you don't understand the fear of the lord let scripture teach you:
+If you don't understand the fear of the Lord let scripture teach you:
 
 > Come, O children, listen to me;
 > I will teach you the fear of the Lord.
